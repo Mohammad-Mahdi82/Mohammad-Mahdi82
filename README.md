@@ -1,4 +1,4 @@
-In the name of God
+In the name of Allah
 
 I'm Mohammad Mahdi Asgari
 
